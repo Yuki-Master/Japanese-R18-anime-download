@@ -1,3 +1,6 @@
+- # My Telegram
+- # https://t.me/lspooxx
+
 - # 以上番剧都是磁力种子
 - # IS BT
 
