@@ -1,5 +1,5 @@
 - # My Telegram
-- # https://t.me/lspooxx
+- # https://t.me/sese_baike
 
 - # 以上番剧都是磁力种子
 - # IS BT
